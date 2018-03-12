@@ -1,6 +1,6 @@
 ### Mary Brennan Ada Application Resume
 
-#### inxcapable@aol.com
+#### inxcapable@gmail.com
 
 #### 206.399.9330
 
